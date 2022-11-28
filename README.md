@@ -1,2 +1,1 @@
-# zero_day
-I keep building
+I will become a cybersecurity specialist
